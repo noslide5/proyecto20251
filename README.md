@@ -9,4 +9,6 @@ ingenieria civil
 
 edilson.moreno@udea.edu.co
 
+video segunda entrega:
+
 https://youtu.be/P1nlUEpgfNA
